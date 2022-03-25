@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Chuzz38
+- 👋 Hi, I’m Thomas le beau gosse
 - 👀 I’m interested in video games 
 - 🌱 I’m currently learning english and programming 
 - 💞️ I’m looking to collaborate on ...
