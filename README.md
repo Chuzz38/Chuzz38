@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Thomas, currently 18 years old 
+- 👋 Hi, I’m Thomas, currently 20 years old 
 - 👀 I’m interested in video games, computer science and learning a lot of things
 - 🌱 I’m currently learning english, programming and I would love to start and increase my knowledges in computer science and above all in the cybersecurity domain.
 - 💞️ I’m looking to collaborate on ...
